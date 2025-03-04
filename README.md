@@ -1,7 +1,7 @@
-## Hi there 👋
+## Hi World 👋
 
-I currently...
+My name is Ellen Dinata jo
+University: RMIT
+Program: Masters of AI 💻
 
-have no idea what i'm doing lmao
-
-looking for friends (help)
+🍂🍂🍂🍂
